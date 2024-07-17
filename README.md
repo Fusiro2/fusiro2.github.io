@@ -1,0 +1,1 @@
+# fusiro2.github.io
